@@ -9,7 +9,7 @@ Democracia ahora! produce una hora de noticias diaria, global e independiente or
 
 Democracy Now! se transmite a diario en todo Estados Unidos y Canadá, así como en países de todo el mundo. Nuestro programa está en las estaciones de radio de Pacifica, NPR, comunidad, universidad y satélite; en PBS, televisión pública, comunitaria y satelital; y visto por millones de personas en línea cada día. Nuestros titulares se transmiten en español en las estaciones de radio de los Estados Unidos, América Central y del Sur y en Europa.<br>
 
-Democracia ahora! lanzado en 1996, transmitido en nueve estaciones de radio. Más de dos décadas después, nos hemos convertido en una de las principales transmisiones de noticias diarias independientes del mundo con sede en EE. <br>
+Democracia ahora! lanzado en 1996, transmitido en nueve estaciones de radio. Más de dos décadas después, nos hemos convertido en una de las principales transmisiones de noticias diarias independientes del mundo con sede en EE.<br>
 
 Como un programa de noticias independiente, Democracy Now! está respaldado por el público, lo que significa que nuestra independencia editorial nunca se ve comprometida por intereses corporativos o gubernamentales. Desde nuestra fundación en 1996, Democracy Now! se ha mantenido firme en nuestra política de no aceptar fondos del gobierno, patrocinio corporativo, suscripción o ingresos publicitarios<br>
 
